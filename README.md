@@ -1,0 +1,2 @@
+# ECA0204-Slot-A-Srihari-S
+DIGITAL CIRCUITS 
